@@ -1,3 +1,0 @@
-Our planet,the Earth,is the third planet from the Sun.It is a beautiful,rotating sphere.The side facing the Sun is in daylight.The side facing away from the Sun is in darkness.For example,when it's daytime in the US,it's nighttime in China.In fact,there's a 12-hour time difference between Boston and Shanghai.When it's midnight in Shanghai,it's noon in Boston.
-
-The Earth rotates from west to east.To know which direction is east or west,watch the Sun.The Sun travels through the sky from east to west.The Sun comes up in the east and goes down in the west.Again,this is because the Earth rotates.It takes 24 hours for the Earth to make a complete rotation.And that is the length of one day.
